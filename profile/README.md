@@ -2,6 +2,10 @@
 
 ## [Click to play Retro Bowl!](https://tinyurl.com/2s46pemj)
 
+## [Play Sprunki Phase 3 MOD](https://github.com/Sprunki-Phase-3-Incredibox-Game)
+
+## [Play Highway Traffic Unblocked](https://github.com/Highway-Traffic-Unblocked)
+
 ![ZlDN1ZEba-9DqBMGv0O9Td9ifhW1qvkQ](https://github.com/user-attachments/assets/e8c7cc63-822e-48bd-adb1-26754bc64aac)
 
 ## Overview
