@@ -4,6 +4,8 @@
 
 ## [Play Sprunki Phase 3 MOD](https://github.com/Sprunki-Phase-3-Incredibox-Game)
 
+# [PLAY SPRUNKI PHASE 7!](https://github.com/Sprunki-Phase-7)
+
 ## [Play Highway Traffic Unblocked](https://github.com/Highway-Traffic-Unblocked)
 
 ![ZlDN1ZEba-9DqBMGv0O9Td9ifhW1qvkQ](https://github.com/user-attachments/assets/e8c7cc63-822e-48bd-adb1-26754bc64aac)
