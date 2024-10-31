@@ -2,12 +2,6 @@
 
 ## [Click to play Retro Bowl!](https://tinyurl.com/2s46pemj)
 
-## [Play Sprunki Phase 3 MOD](https://github.com/Sprunki-Phase-3-Incredibox-Game)
-
-## [PLAY SPRUNKI PHASE 7!](https://github.com/Sprunki-Phase-7)
-
-## [Play Highway Traffic Unblocked](https://github.com/Highway-Traffic-Unblocked)
-
 ![ZlDN1ZEba-9DqBMGv0O9Td9ifhW1qvkQ](https://github.com/user-attachments/assets/e8c7cc63-822e-48bd-adb1-26754bc64aac)
 [UniTV](https://github.com/Uni-TV)
 
@@ -29,6 +23,16 @@ Welcome to **Retro Bowl Unblocked**, a classic American football game with a ret
 2. **Manage Your Team**: Set up your roster, choose your playbook, and adjust strategies.
 3. **Score Touchdowns**: Control your team on the field to score touchdowns and outplay the opponent.
 4. **Upgrade Players**: Earn rewards through games and improve your team’s abilities.
+5. https://github.com/roblox-mobile
+6. https://github.com/Fortnite-MOD
+7. https://github.com/Subway-Surfers-Game
+8. https://github.com/Monopoly-Go-Game
+9. https://github.com/Spotify-Premium-Mobile
+10. https://github.com/Among-Us-Play-Game
+11. https://github.com/Call-of-Duty-mobile
+12. https://github.com/Clash-of-Clans-APK
+13. https://github.com/GTA-5-Mobile
+14. https://github.com/youtube-vanced-mobile
 
 ## Installation
 
