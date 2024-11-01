@@ -2,6 +2,8 @@
 
 ## [Click to play Retro Bowl!](https://tinyurl.com/2s46pemj)
 
+## [Play Geometry Dash Unblocked!](https://github.com/Geometry-Dash-Game-Project)
+
 ![ZlDN1ZEba-9DqBMGv0O9Td9ifhW1qvkQ](https://github.com/user-attachments/assets/e8c7cc63-822e-48bd-adb1-26754bc64aac)
 [UniTV](https://github.com/Uni-TV)
 
